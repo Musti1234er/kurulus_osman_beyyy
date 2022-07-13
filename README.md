@@ -1,0 +1,1 @@
+# kurulus_osman_beyyy
